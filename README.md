@@ -1,0 +1,2 @@
+# premium-casting-lost-001-lost-wax-investment-casting-gu
+You're losing track of casting batches, material ratios, and quality checks across multiple projects. The Lost Wax Investment Casting Guide eliminates scattered notes and guesswork by consolidating your entire casting workflow into one organized, repeatable system.  This Notion template transforms chaotic casting logs into a professional-grade prod
